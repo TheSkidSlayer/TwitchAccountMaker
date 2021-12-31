@@ -14,4 +14,4 @@
   - Run The Program And Wait!
 
 # Support Me
-  - Donate To Me VIA PayPal: `dropoutxd1337@gmail.com`
+  1800#0001
